@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Ganesh0106
+- 👀 I’m interested in Web DEvelopment  
+- 🌱 I’m currently learning Java Script
+- 📫 How to reach me Instagram: https://www.instagram.com/ganenheimer/ Gmail:ganeshh3009@gmail.com  
+- 😄 Pronouns: He/Him
